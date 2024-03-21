@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UbuntuNoshi
+- 👀 I’m interested in ceFi and deFi and AI.
+- 🌱 I’m currently learning mySQL and python.
+- 💞️ I’m looking to collaborate on deFi portfolio management projects.
+- 📫 How to reach me ... ubuntunoshi@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: ENTP
